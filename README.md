@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @GuusDb
-- 👀 I’m interested in Sebastien
+- 👀 I’m interested in sexy banana, very good very nice
 - 🌱 I’m currently learning java, javascript, arduino, css, MySQL
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
